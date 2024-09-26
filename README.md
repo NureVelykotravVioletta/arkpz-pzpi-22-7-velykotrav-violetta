@@ -1,1 +1,3 @@
-# arkpz-pzpi-22-7-velykotrav-violetta
+Великотрав Віолетта
+
+ПЗПІ-22-7
